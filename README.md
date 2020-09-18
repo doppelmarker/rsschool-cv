@@ -1,1 +1,1 @@
-https://doppelmarker.github.io/rsschool-cv/cv
+https://doppelmarker.github.io/rsschool-cv/
